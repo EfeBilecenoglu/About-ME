@@ -1,2 +1,2 @@
 # About ME
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=EfeBilecenoglu
+https://visitor-badge.laobi.icu/badge?page_id=EfeBilecenoglu
